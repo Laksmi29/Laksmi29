@@ -1,3 +1,3 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Laksmi Dyah Nurlita**.\
+Perkenalkan nama saya **Laksmi Dyah Nurlita**
